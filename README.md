@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @UnrealChocolates
 - 👀 I’m interested in Chocolate
 - 🌱 I’m currently learning computer science
-- 📫 How to reach me ...
+- 📫 How to reach me, buy a chocolate bar
 - 😄 Pronouns: Chocolate
 - ⚡ Fun fact: I do like Chocolate
 
